@@ -1,4 +1,4 @@
-## Hi there 👋
+## wip cuz im still learning on how to code this
 
 <!--
 **cryptic-veil/cryptic-veil** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
