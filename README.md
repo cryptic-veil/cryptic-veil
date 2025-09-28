@@ -3,6 +3,5 @@
 
 > c+h is HIGHLY encouraged if youre in the same fandom as me (just iwec!!)
 - ✩ check my links out to know more bout me!
-- jonadio diopucci giomis DNI
-  
-![Image](https://github.com/user-attachments/assets/402ebdb0-0b26-438d-9529-a47ea185e0f7)
+
+  ![Image](https://github.com/user-attachments/assets/402ebdb0-0b26-438d-9529-a47ea185e0f7)
