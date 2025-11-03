@@ -9,4 +9,4 @@
 
 ![Image](https://64.media.tumblr.com/59ca93030d6aed0e273685eb3b594ac2/tumblr_inline_mjqayx3zMH1qz4rgp.gif) c+h is highly encouraged i wont bite
 
-  ![Image](https://github.com/user-attachments/assets/402ebdb0-0b26-438d-9529-a47ea185e0f7)
+   ![Image](https://files.catbox.moe/b369ck.png)
