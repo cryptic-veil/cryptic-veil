@@ -6,7 +6,7 @@
 
 ![Image](https://64.media.tumblr.com/59ca93030d6aed0e273685eb3b594ac2/tumblr_inline_mjqayx3zMH1qz4rgp.gif) c+h is highly encouraged i wont bite
 
-![Image](https://64.media.tumblr.com/bbe2c64e9a3bb3351b0e81c9472a8ad9/tumblr_inline_msbtspd36q1rkldve.gif) proshippers DONT interact ( jonadio/diopucci/johnnylucy and that one *JOTAJOSU* shipper in the jjba area pls kindly dont interact, yall are disgusting and you should feel ashamed of yourself )
+![Image](https://64.media.tumblr.com/bbe2c64e9a3bb3351b0e81c9472a8ad9/tumblr_inline_msbtspd36q1rkldve.gif) proshippers DONT interact ( jonadio/diopucci/johnnylucy and that one *JOTAJOSU* shipper in the jjba area pls kindly dont interact )
 
 ![Image](https://64.media.tumblr.com/tumblr_lv6pbgYEWM1qdlkyg.gif) i pretty much block/hide a problematic individual freely without any warnings if you make me or my friends uncomfortable
 
