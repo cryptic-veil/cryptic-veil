@@ -4,7 +4,7 @@
 
 ![Image](https://64.media.tumblr.com/tumblr_mdnsivG5zy1qdlkyg.gif) dnc my skins inspirations are fine
 
-![Image](https://64.media.tumblr.com/59ca93030d6aed0e273685eb3b594ac2/tumblr_inline_mjqayx3zMH1qz4rgp.gif) c+h is highly encouraged i wont bite
+![Image](https://64.media.tumblr.com/59ca93030d6aed0e273685eb3b594ac2/tumblr_inline_mjqayx3zMH1qz4rgp.gif) i dont follow back spam accounts
 
 ![Image](https://64.media.tumblr.com/tumblr_lv6pbgYEWM1qdlkyg.gif) i pretty much block/hide a problematic individual freely without any warnings if you make me or my friends uncomfortable
 
