@@ -3,7 +3,7 @@
 
 * not rlly good at maintaining long term relationship as i tend to drain out quickly mb
   
-* ill try my best to keep us both entertained as friends
+* but ill try my best to keep us both entertained as friends
 
 ![Image](https://64.media.tumblr.com/tumblr_mdnsivG5zy1qdlkyg.gif) dnc or color pick my skins
 
