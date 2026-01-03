@@ -3,6 +3,8 @@
 
 * not rlly good at maintaining long term relationship as i tend to drain out quickly gulps
 
+* yuri/yaoi fetishizers dni
+
 ![Image](https://64.media.tumblr.com/tumblr_mdnsivG5zy1qdlkyg.gif) dnc or color pick my skins
 
 ![Image](https://64.media.tumblr.com/59ca93030d6aed0e273685eb3b594ac2/tumblr_inline_mjqayx3zMH1qz4rgp.gif) i dont follow back spam accounts unless i know you
