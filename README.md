@@ -3,7 +3,7 @@
 
 * ENG / CN 中文 speaker
 
-* not rlly good at maintaining long term relationship as i tend to drain out quickly gulps
+* not rlly good at maintaining long term relationships as i tend to drain out quickly gulps
 
 * yuri/yaoi fetishizers dni
 
