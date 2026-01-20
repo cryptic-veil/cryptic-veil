@@ -7,12 +7,8 @@
 
 * yuri/yaoi fetishizers dni
 
-  ------------------------------
+* block/hide freely
 
-![Image](https://64.media.tumblr.com/tumblr_mdnsivG5zy1qdlkyg.gif) dnc or color pick my skins
+  ________________________________________________________
 
-![Image](https://64.media.tumblr.com/59ca93030d6aed0e273685eb3b594ac2/tumblr_inline_mjqayx3zMH1qz4rgp.gif) i dont follow back spam accounts unless i know you
-
-![Image](https://64.media.tumblr.com/tumblr_lv6pbgYEWM1qdlkyg.gif) hide and block freely if youre problematic
-
-   ![Image](https://files.catbox.moe/b369ck.png)
+   ![Image](https://files.catbox.moe/hkdrmu.jpg)
