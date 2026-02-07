@@ -11,4 +11,11 @@
 
 ________________________________________________________
 
-   ![Image](https://files.catbox.moe/ffkuyw.jpg)
+<!--
+Source - https://stackoverflow.com/a/55863029
+Posted by Seymur Mammadli, modified by community. See post 'Timeline' for change history
+Retrieved 2026-02-08, License - CC BY-SA 4.0
+-->
+
+<img src="https://files.catbox.moe/ffkuyw.jpg" width="324" height="324">
+
