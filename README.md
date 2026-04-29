@@ -17,5 +17,5 @@ Posted by Seymur Mammadli, modified by community. See post 'Timeline' for change
 Retrieved 2026-02-08, License - CC BY-SA 4.0
 -->
 
-<img src="https://files.catbox.moe/ffkuyw.jpg" width="324" height="324">
+<img src="https://files.catbox.moe/2cu11h.jpg" width="324" height="324">
 
