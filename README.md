@@ -3,8 +3,6 @@
 
 ༊*·  ENG / CN 中文 
 
-༊*· not rlly good at maintaining long term relationships as i tend to drain out quickly gulps
-
 ༊*· yes i will cut you off if you are moots with any problematic person
 
 ༊*· block/hide freely
