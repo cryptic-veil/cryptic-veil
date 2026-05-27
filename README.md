@@ -3,7 +3,7 @@
 
 ${\color{lightblue}\textsf{⋆୨ ENG / CN 中文}}$
 
-${\color{lightblue}\textsf{⋆୨ bmf pls i need friends so bad i swear i dont bite}}$
+${\color{lightblue}\textsf{⋆୨ bmf yall i swear i dont bite}}$
 
 ${\color{lightblue}\textsf{⋆୨ yes i will cut you off if you are moots with any problematic person}}$
 
