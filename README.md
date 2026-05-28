@@ -1,11 +1,10 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31px23muq2op5fspxzo2b2rkokbe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=A7C7E7&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)<br>                
 
-${\color{lightblue}\textsf{⋆୨ ENG / CN 中文}}$
-
-${\color{lightblue}\textsf{⋆୨ yes i will cut you off if you are moots with any problematic person}}$
-
-${\color{lightblue}\textsf{⋆୨ block/hide freely}}$<br>
+<p align="center">
+  <img src="https://readme-typing-svg.herokuapp.com/?color=A7C7E7&size=35&center=true&vCenter=true&width=1000&lines=ENG/CN+中文;block/hide+freely;dni+if+you+support+any+problematic+media">
+  --------------------
+</p>
 &nbsp;
 &nbsp;
 <div align="center">
@@ -24,3 +23,4 @@ Retrieved 2026-02-08, License - CC BY-SA 4.0
 <p align="center">
   <img src="https://files.catbox.moe/pihpm1.png" width="400"/>
 </p>
+
