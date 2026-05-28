@@ -5,15 +5,16 @@ ${\color{lightblue}\textsf{⋆୨ ENG / CN 中文}}$
 
 ${\color{lightblue}\textsf{⋆୨ yes i will cut you off if you are moots with any problematic person}}$
 
-${\color{lightblue}\textsf{⋆୨ block/hide freely}}$
+${\color{lightblue}\textsf{⋆୨ block/hide freely}}$<br>
 &nbsp;
 &nbsp;
 <div align="center">
   <img src="https://i.ibb.co/QFNRSh1/8-B74-C5-EC-2-F1-E-4-D5-F-9487-0976-BE9-D1-DD5.gif">
   <img src="https://i.ibb.co/zX6rPQt/D00-DBF85-666-B-4815-A380-79-B9-EB09-B41-A.gif">
-</div>
+</div><br>
 &nbsp;
 &nbsp;
+
 <!--
 Source - https://stackoverflow.com/a/55863029
 Posted by Seymur Mammadli, modified by community. See post 'Timeline' for change history
