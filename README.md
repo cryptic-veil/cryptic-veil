@@ -22,11 +22,6 @@ Posted by Seymur Mammadli, modified by community. See post 'Timeline' for change
 Retrieved 2026-02-08, License - CC BY-SA 4.0
 -->
 
-
-
-<div align="center">
-
-<img src="https://files.catbox.moe/2cu11h.jpg" width="300" height="300">
-
-</div>
-
+<p align="center">
+  <img src="https://files.catbox.moe/pihpm1.png" width="400"/>
+</p>
