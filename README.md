@@ -3,7 +3,7 @@
 
 <p align="center">
   <img src="https://readme-typing-svg.herokuapp.com/?color=A7C7E7&size=35&center=true&vCenter=true&width=1000&lines=ENG/CN+中文;block/hide+freely;dni+if+you+support+any+problematic+media">
-  --------------------
+  
 </p>
 &nbsp;
 &nbsp;
