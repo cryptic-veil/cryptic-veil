@@ -1,7 +1,13 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31px23muq2op5fspxzo2b2rkokbe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=A7C7E7&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)<br>                
 
-<p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=A7C7E7&size=35&center=true&vCenter=true&width=1000&lines=ENG/CN+中文;dni+if+you+support+problematic+media;block/hide+freely+if+youre+harmful/weird" width="350" /> </p>
+${\color{lightblue}\textsf{ENG/CN 中文}}$
+
+${\color{lightblue}\textsf{block/hide freely}}$
+
+${\color{lightblue}\textsf{dni if you support any kind of problematic media}}$
+
+________________
 &nbsp;
 &nbsp;
 <div align="center">
@@ -10,6 +16,7 @@
 </div><br>
 &nbsp;
 &nbsp;
+<p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=A7C7E7&size=35&center=true&vCenter=true&width=1000&lines=Flies+are+buzzing+around+my+head;Vultures+circling+the+dead;Picking+up+every+last+crumb;The+big+fish+eat+the+little+ones;The+big+fish+eat+the+little+ones;Not+my+problem+,+give+me+some" width="400" /> </p>
 
 <!--
 Source - https://stackoverflow.com/a/55863029
