@@ -5,7 +5,7 @@ ${\color{lightblue}\textsf{ENG/CN 中文}}$
 
 ${\color{lightblue}\textsf{block/hide freely}}$
 
-${\color{lightblue}\textsf{dni if you support any problematic media}}$
+${\color{lightblue}\textsf{dni if you force your believes on me}}$
 
 ________________
 &nbsp;
