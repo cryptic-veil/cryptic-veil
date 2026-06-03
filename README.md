@@ -23,8 +23,7 @@ Source - https://stackoverflow.com/a/55863029
 Posted by Seymur Mammadli, modified by community. See post 'Timeline' for change history
 Retrieved 2026-02-08, License - CC BY-SA 4.0
 -->
-
 <p align="center">
-  <img src="https://files.catbox.moe/pihpm1.png" width="400"/>
+  <img src="https://i.pinimg.com/originals/d9/84/39/d984395bfb4cbd10a7e4d764ae760c67.gif" width="300" />
 </p>
 
