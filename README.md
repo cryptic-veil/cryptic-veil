@@ -1,11 +1,11 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31px23muq2op5fspxzo2b2rkokbe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=A7C7E7&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)<br>                
 
-${\color{lightblue}\textsf{ENG/CN 中文}}$
+${\color{lightblue}\textsf{- ENG/CN 中文}}$
 
-${\color{lightblue}\textsf{block/hide freely}}$
+${\color{lightblue}\textsf{- block/hide freely}}$
 
-${\color{lightblue}\textsf{dni if you force your believes on me}}$
+${\color{lightblue}\textsf{- dni if you force your believes on me}}$
 
 ________________
 &nbsp;
