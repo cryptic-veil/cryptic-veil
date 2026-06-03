@@ -16,7 +16,7 @@ ________________
 </div><br>
 &nbsp;
 &nbsp;
-<p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=A7C7E7&size=35&center=true&vCenter=true&width=1000&lines=Flies+are+buzzing+around+my+head;Vultures+circling+the+dead;Picking+up+every+last+crumb;The+big+fish+eat+the+little+ones;The+big+fish+eat+the+little+ones;Not+my+problem+,+give+me+some" width="400" /> </p>
+<p align="center"> <img src="https://readme-typing-svg.herokuapp.com/?color=A7D8DE&size=35&center=true&vCenter=true&width=1000&lines=Flies+are+buzzing+around+my+head;Vultures+circling+the+dead;Picking+up+every+last+crumb;The+big+fish+eat+the+little+ones;The+big+fish+eat+the+little+ones;Not+my+problem+,+give+me+some" width="400" /> </p>
 
 <!--
 Source - https://stackoverflow.com/a/55863029
