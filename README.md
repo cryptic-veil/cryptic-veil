@@ -7,7 +7,7 @@ ${\color{lightblue}\textsf{- block/hide freely}}$
 
 ${\color{lightblue}\textsf{- dni if you force your believes on me}}$
 
-________________
+
 &nbsp;
 &nbsp;
 <div align="center">
