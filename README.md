@@ -5,7 +5,7 @@ ${\color{lightblue}\textsf{- ENG/CN 中文}}$
 
 ${\color{lightblue}\textsf{- block/hide freely}}$
 
-${\color{lightblue}\textsf{- c+h is heavily encouraged unless said so}}$
+${\color{lightblue}\textsf{- im not interested in roleplaying/dramas}}$
 
 
 &nbsp;
