@@ -2,16 +2,15 @@
   <span style="color:#ff4d6d;">𓆉 ⋆.˚𓇼 ⋆.˚𓆟</span>
 </p>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31px23muq2op5fspxzo2b2rkokbe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=A7C7E7&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)<br>          
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31px23muq2op5fspxzo2b2rkokbe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=F3EDE2&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)<br>          
 
-${\color{lightblue}\textsf{- ENG/CN中文}}$
+${\color{#A7D8DE}\textsf{- ENG/CN中文}}$
 
-${\color{lightblue}\textsf{- not interested in roleplaying}}$
+${\color{#5FA9B5}\textsf{- not interested in roleplaying}}$
 
-${\color{lightblue}\textsf{- do not involve me in unnecessary dramas}}$
+${\color{#A7D8DE}\textsf{- do not involve me in unnecessary dramas}}$
 
-${\color{lightblue}\textsf{- block/hide freely}}$
-
+${\color{#5FA9B5}\textsf{- block/hide freely}}$
 
 &nbsp;
 &nbsp;
