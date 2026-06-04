@@ -4,13 +4,13 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31px23muq2op5fspxzo2b2rkokbe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=F3EDE2&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)<br>          
 
-${\color{#A7D8DE}\textsf{- ENG/CN中文}}$
+${\color{#A7D8DE}\textsf{𓆝 ENG/CN中文}}$
 
-${\color{#5FA9B5}\textsf{- not interested in roleplaying}}$
+${\color{#5FA9B5}\textsf{𓆟 not interested in roleplaying}}$
 
-${\color{#A7D8DE}\textsf{- do not involve me in unnecessary dramas}}$
+${\color{#A7D8DE}\textsf{𓆞 do not involve me in unnecessary dramas}}$
 
-${\color{#5FA9B5}\textsf{- block/hide freely}}$
+${\color{#5FA9B5}\textsf{𓆝 block/hide freely}}$
 
 &nbsp;
 &nbsp;
