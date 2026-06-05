@@ -12,7 +12,7 @@ ${\color{#A7D8DE}\textsf{𓆝 ENG/CN中文}}$
 
 ${\color{#5FA9B5}\textsf{𓆟 not interested in roleplaying}}$
 
-${\color{#A7D8DE}\textsf{𓆞 do not involve me in unnecessary dramas}}$
+${\color{#A7D8DE}\textsf{𓆞 dont involve me in unnecessary dramas}}$
 
 ${\color{#5FA9B5}\textsf{𓆝 block/hide freely}}$
 
