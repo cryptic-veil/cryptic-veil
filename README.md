@@ -38,4 +38,6 @@ Retrieved 2026-02-08, License - CC BY-SA 4.0
 <p align="center">
   <img src="https://i.pinimg.com/originals/d9/84/39/d984395bfb4cbd10a7e4d764ae760c67.gif" width="300" />
 </p>
-
+<div align="center">
+  <img src="https://gifs.carrd.co/assets/images/image14.gif?vfd74bc7cc">
+</div><br>
