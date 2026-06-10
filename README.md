@@ -1,6 +1,4 @@
-<p align="center">
-  <span style="color:#ff4d6d;">𓆉 ⋆.˚𓇼 ⋆.˚𓆟</span>
-</p>
+
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
