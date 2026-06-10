@@ -6,22 +6,35 @@
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31px23muq2op5fspxzo2b2rkokbe&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=B3C7D1&bar_color_cover=false">
   </a>
-</p>         
+</p> 
 
 ${\color{#35575D}\textsf{𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞}}$
 <br>
 <br>
 <br>
-${\color{#A7D8DE}\textsf{𓆝 ENG/CN中文}}$
-
-${\color{#5FA9B5}\textsf{𓆟 not interested in roleplaying}}$
-
-${\color{#A7D8DE}\textsf{𓆞 dont involve me in unnecessary dramas}}$
-
-${\color{#5FA9B5}\textsf{𓆝 block/hide freely}}$
-
+<p align="center">
+${\color{#A7D8DE}\textsf{ENG/CN中文}}$
+</p>
+<p align="center">
+${\color{#5FA9B5}\textsf{not interested in roleplaying}}$
+</p>
+<p align="center">
+${\color{#A7D8DE}\textsf{dont involve me in unnecessary dramas}}$
+</p>
+<p align="center">
+${\color{#5FA9B5}\textsf{block/hide freely}}$
+</p>
 &nbsp;
 &nbsp;
+&nbsp;
+<br>
+<br>
+
+${\color{#35575D}\textsf{𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞}}$
+
+<br>
+<br>
+
 <div align="center">
   <img src="https://i.ibb.co/QFNRSh1/8-B74-C5-EC-2-F1-E-4-D5-F-9487-0976-BE9-D1-DD5.gif">
   <img src="https://i.ibb.co/zX6rPQt/D00-DBF85-666-B-4815-A380-79-B9-EB09-B41-A.gif">
@@ -38,6 +51,4 @@ Retrieved 2026-02-08, License - CC BY-SA 4.0
 <p align="center">
   <img src="https://i.pinimg.com/originals/d9/84/39/d984395bfb4cbd10a7e4d764ae760c67.gif" width="300" />
 </p>
-<div align="center">
-  <img src="https://gifs.carrd.co/assets/images/image14.gif?vfd74bc7cc">
-</div><br>
+
