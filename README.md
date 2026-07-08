@@ -14,7 +14,7 @@ ${\color{#35575D}\textsf{𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 
 ${\color{#A7D8DE}\textsf{ENG/CN中文}}$
 </p>
 <p align="center">
-${\color{#5FA9B5}\textsf{not interested in roleplaying}}$
+${\color{#5FA9B5}\textsf{dnc/color pick my skins , inspo is fine}}$
 </p>
 <p align="center">
 ${\color{#A7D8DE}\textsf{dont involve me in unnecessary dramas}}$
