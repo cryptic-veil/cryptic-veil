@@ -45,6 +45,6 @@ Posted by Seymur Mammadli, modified by community. See post 'Timeline' for change
 Retrieved 2026-02-08, License - CC BY-SA 4.0
 -->
 <p align="center">
-  <img src="https://i.pinimg.com/originals/b1/66/81/b166816212b8fb4190b67bb601979a0d.gif" width="300" />
+  <img src="https://i.pinimg.com/originals/64/67/ed/6467ed6bbd261b515a94cf1200bd550d.gif" width="300" />
 </p>
 
