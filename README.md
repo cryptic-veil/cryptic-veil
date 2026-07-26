@@ -32,8 +32,8 @@ ${\color{#F3E8DE}\textsf{block/hide freely}}$
 <br>
 
 <div align="center">
-  <img src="https://i.ibb.co/QFNRSh1/8-B74-C5-EC-2-F1-E-4-D5-F-9487-0976-BE9-D1-DD5.gif">
-  <img src="https://i.ibb.co/zX6rPQt/D00-DBF85-666-B-4815-A380-79-B9-EB09-B41-A.gif">
+  <img src="https://i.imgur.com/5oBV0ok.gif">
+  <img src="https://i.imgur.com/1p7QTmr.gif">
 </div><br>
 &nbsp;
 &nbsp;
