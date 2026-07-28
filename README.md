@@ -50,7 +50,7 @@ Retrieved 2026-02-08, License - CC BY-SA 4.0
   <br>
 </p>
 <p align="center">
-      <img src="https://i.imgur.com/5oBV0ok.gif">
+      <img src="https://yokai.crd.co/assets/images/gallery03/4246c620.gif?v=b4df531c">
   𓆩 <a href="https://github.com/pt-walk-of-fame">𝚆𝚊𝚕𝚔 𝚘𝚏 𝙵𝚊𝚖𝚎</a> 𓆪
-      <img src="https://i.imgur.com/1p7QTmr.gif">
+      <img src="https://yokai.crd.co/assets/images/gallery03/58ed5769.gif?v=b4df531c">
 </p>
