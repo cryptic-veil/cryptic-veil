@@ -13,7 +13,7 @@ ${\color{#E8DDD4}\textsf{𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 
 ${\color{#E9C8C8}\textsf{ENG/CN中文}}$
 </p>
 <p align="center">
-${\color{#F3E8DE}\textsf{dnc/color pick my skins , inspo is fine}}$
+${\color{#F3E8DE}\textsf{dnc/color pick my skins , inspos are fine w friends}}$
 </p>
 <p align="center">
 ${\color{#E9C8C8}\textsf{dont involve me in unnecessary dramas}}$
