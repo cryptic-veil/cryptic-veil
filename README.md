@@ -19,10 +19,10 @@ ${\color{#F3E8DE}\textsf{dnc/color pick my skins without consent}}$
 ${\color{#E9C8C8}\textsf{inspos are fine if we are close}}$
 </p>
 <p align="center">
-${\color{#E9C8C8}\textsf{dont involve me in unnecessary dramas}}$
+${\color{#F3E8DE}\textsf{dont involve me in unnecessary dramas}}$
 </p>
 <p align="center">
-${\color{#F3E8DE}\textsf{block/hide freely}}$
+${\color{#E9C8C8}\textsf{block/hide freely}}$
 </p>
 &nbsp;
 &nbsp;
