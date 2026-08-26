@@ -10,7 +10,7 @@ ${\color{#E8DDD4}\textsf{𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 
 <br>
 <br>
 <p align="center">
-${\color{#E9C8C8}\textsf{ENG/CN中文}}$
+${\color{#E9C8C8}\textsf{southeast asian , ENG/CN中文}}$
 </p>
 <p align="center">
 ${\color{#F3E8DE}\textsf{dnc/color pick my skins without consent}}$
