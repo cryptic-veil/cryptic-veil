@@ -1,5 +1,3 @@
-<img src="https://files.catbox.moe/yhy2sy.png" alt="Alt text" width="900" height="200" >
-
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31px23muq2op5fspxzo2b2rkokbe&cover_image=true&theme=novatorem&show_offline=false&background_color=aa3c3c&interchange=false&profanity=false&hide_remaster=false&bar_color=4e4e94&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
